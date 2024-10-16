@@ -1,0 +1,1 @@
+MicroStar partners with the world’s best brewers by delivering a more efficient and sustainable keg supply chain. Rather than owning or leasing kegs, brewers share high-quality MicroStar branded kegs, and through this highly circular model, we together dramatically reduce the distance empty kegs travel taking 4.1MM million truck miles off the road.
